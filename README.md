@@ -1,8 +1,9 @@
 
 ## cool stuff
+* ☂️ [twitch.](https://steamcommunity.com/id/totsu0jv/)
 * Ⓜ️ [moped.](https://github.com/moped-scripts)
 * 🧛🏿‍♀️ [portfolio.](https://totsu0jv.github.io/)
-* 🍜 [steam.](https://steamcommunity.com/id/totsumejbe/)
+* 🍜 [steam.](https://steamcommunity.com/id/totsu0jv/)
 
 ###### off the grid
 
