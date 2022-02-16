@@ -1,6 +1,6 @@
 
 ## cool stuff
-* ☂️ [twitch.](https://steamcommunity.com/id/totsu0jv/)
+* ☂️ [twitch.](https://www.twitch.tv/totsu)
 * Ⓜ️ [moped.](https://github.com/moped-scripts)
 * 🧛🏿‍♀️ [portfolio.](https://totsu0jv.github.io/)
 * 🍜 [steam.](https://steamcommunity.com/id/totsu0jv/)
