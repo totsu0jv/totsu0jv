@@ -2,7 +2,7 @@
 ## cool stuff
 * ☂️ [twitch.](https://www.twitch.tv/totsu)
 * Ⓜ️ [moped.](https://github.com/moped-scripts)
-* 🧛🏿‍♀️ [portfolio.](https://totsu0jv.github.io/)
+* 🧛🏿‍♀️ [linktree.](https://linktr.ee/totsu/)
 * 🍜 [steam.](https://steamcommunity.com/id/totsu0jv/)
 
 ###### off the grid
