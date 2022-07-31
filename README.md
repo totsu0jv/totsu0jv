@@ -1,5 +1,6 @@
 
 ## cool stuff
+* 🗽 [nymrp.](https://nymrp.cc/)
 * ☂️ [twitch.](https://www.twitch.tv/totsu)
 * Ⓜ️ [moped.](https://github.com/moped-scripts)
 * 🧛🏿‍♀️ [linktree.](https://linktr.ee/totsu/)
