@@ -1,11 +1,8 @@
 
 ## cool stuff
 * 🕹️ [itch.io.](https://totsu0jv.itch.io/)
-* 🗽 [nymrp.](https://nymrp.cc/)
 * ☂️ [twitch.](https://www.twitch.tv/totsu)
-* Ⓜ️ [moped.](https://github.com/moped-scripts)
-* 🧛🏿‍♀️ [linktree.](https://linktr.ee/totsu/)
-* 🍜 [steam.](https://steamcommunity.com/id/totsu0jv/)
+* 💴 [dead.yen](https://discord.gg/DSEW5xWKT8)
 
 ###### off the grid
 
